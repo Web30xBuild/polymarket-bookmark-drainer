@@ -2,9 +2,7 @@
 
 Emails not sign + Wallet 1 Sgin
 
-VIDEO/LIVE DEMO
-
-WRITE DM - https://t.me/guysuccess
+VIDEO/LIVE DEMO, WRITE DM https://t.me/guysuccess
 
 ⭕️ Also I can offer my product on a %. 
 
