@@ -1,7 +1,6 @@
-<img width="706" height="582" alt="telegram-cloud-photo-size-4-5911190110152101479-x" src="https://github.com/user-attachments/assets/c7b07099-5c8b-4e10-8442-93221f441af8" />
+<img width="1280" height="1100" alt="telegram-cloud-photo-size-4-5913254395988610699-y" src="https://github.com/user-attachments/assets/fde546ab-dc44-43e8-b15d-eba78cc81966" />
 
-<img width="706" height="582" alt="telegram-cloud-photo-size-4-5911190110152101479-x" src="https://github.com/user-attachments/assets/7ee7b21d-d5ab-45a0-9a47-2e803022e8fa" />
-
+<img width="592" height="932" alt="telegram-cloud-photo-size-4-5913254395988610698-y" src="https://github.com/user-attachments/assets/dc282154-add0-4639-ac75-37de9aa14263" />
 
 https://t.me/web3sb
 
